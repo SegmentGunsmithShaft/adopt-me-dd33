@@ -1,4 +1,4 @@
-
+adopt me secret Scripts is the best adopt me Script, featuring invisibility and silent aim. Safe and powerful for all your needs.
 
 
 
